@@ -1,4 +1,4 @@
-# 
+# Actualizado Vegas Pro plantillas para Mac OS | Seguro Vegas Pro plantillas para PC Windows. Con edición de línea de tiempo y cambio de escenas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
